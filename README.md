@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bagel+Fat+One&pause=1000&color=F76400&width=435&lines=%ED%83%9C%EB%85%95%EC%98%A4%EB%B9%A0+%EA%B9%83%ED%97%88%EB%B8%8C+%EC%95%8C%EB%A0%A4%EC%A4%98%EC%95%BC%EC%A7%80+!)](https://git.io/typing-svg)
